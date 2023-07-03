@@ -2,6 +2,6 @@
 
 usarei este espaço para a organização dos meus projetos do alura
 
-![](https://tenor.com/pt-BR/view/meme-gif-20954604)
+![](https://media.tenor.com/LCBVLQh9vFwAAAAi/meme.gif)
 
 
